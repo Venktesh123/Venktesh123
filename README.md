@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **venktesh.iet.btech@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1xV5Y-eHgZWHNoGpMDz6j7Ji1TmT8Bpa2/view?usp=sharing](https://drive.google.com/file/d/1xV5Y-eHgZWHNoGpMDz6j7Ji1TmT8Bpa2/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1xV5Y-eHgZWHNoGpMDz6j7Ji1TmT8Bpa2/view?usp=sharing](https://drive.google.com/file/d/1nDHonXacNgjrNWFcTQalHf54-XtH_SvV/view?usp=sharing)
 
 - ⚡ Fun fact **I am funny**
 
